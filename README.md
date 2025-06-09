@@ -1,2 +1,2 @@
-# club-histoire-arch-ologie
+# club-histoire-archologie
 موقع نادي التاريخ و الآثار 
